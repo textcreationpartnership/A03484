@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Lac puerorum M. holti Mylke for chyldren.¶ Ad reuerendissimū dn̄m suum dn̄m Iohannem morton Cantuarien̄. archipresulem / totiusque Anglie pr
+¶ Ad reuerendissimū dn̄m suum dn̄m Iohannem morton Cantuarien̄. archipresulem / totiusque Anglie pr
     _ ¶ Ad reuerendissimū dn̄m suum dn̄m Iohannem morton Cantuarien̄. archipresulem / totiusque Anglie primatem et titulo sancte Anastasie cardinalem Iohannes holt Epigramma.
 
     _ ¶ Thome more / diserti adolescentuli in lucubraciunculas Holtiade. Epigramma.
